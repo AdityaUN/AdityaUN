@@ -24,5 +24,6 @@ Open to guidance, collaboration, and learning opportunities. Connect with me to 
 
 - LinkedIn: [https://www.linkedin.com/in/aditya-nanoskar-b133a416a/](#)
 - Email: your.email@example.com
+- twitter / X: [https://twitter.com/adi17263](#)
 
 Let's learn and grow together! 🌱🚀
