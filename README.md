@@ -23,7 +23,7 @@ While my focus is on JavaScript, I'm open to learning other technologies as requ
 Open to guidance, collaboration, and learning opportunities. Connect with me to share experiences and insights.
 
 - LinkedIn: [https://www.linkedin.com/in/aditya-nanoskar-b133a416a/](#)
-- Email: your.email@example.com
+- Email: kwaditya395@gmail.com
 - twitter / X: [https://twitter.com/adi17263](#)
 
 Let's learn and grow together! 🌱🚀
